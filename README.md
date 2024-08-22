@@ -9,6 +9,6 @@ My mood:
 
 My favorite color:
 
-> [purple]
+> [Blue]
 
 Thank you so much for reading!
